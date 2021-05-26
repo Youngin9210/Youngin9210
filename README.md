@@ -6,4 +6,4 @@
 - 💬  Ask me about my family!
 - 📫  How to reach me: [kyleyoung.9210@gmail.com](mailto:kyleyoung.9210@gmail.com)
 - 🔗  LinkedIn: [Kyle Young](https://www.linkedin.com/in/kyle-young-2305b032/)
-- ⚡️   Fun fact: I am married to an Audiologist and have 2 beautiful little girls!
+- ⚡️   Fun fact: I am married to an Audiologist👂 and have 2 beautiful little girls!
