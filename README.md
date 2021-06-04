@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- 🔭  I’m currently working on building my portfolio to be more robust!
+- 🔭  I’m currently working on building my portfolio to be more robust to help land a dream job as a full stack dev!
 - 🌱  I’m currently learning REACT!
 - 🤔  I’m looking for help with career opportunities.
 - 💬  Ask me about my family!
